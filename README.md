@@ -1,4 +1,4 @@
-https://github.com/WestKamo/WestKamo/blob/main/E3AF281A-7CF2-4D5E-901C-4930A3B90BC7.jpeg  
+
 - 👋 Hi, I’m Phindile Sandi 
 
 - 🥶 Kamo West
